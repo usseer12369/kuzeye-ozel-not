@@ -1,0 +1,1 @@
+# kuzeye-ozel-not
